@@ -1,0 +1,1 @@
+# haraiev11laba.github.io
